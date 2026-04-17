@@ -20,7 +20,7 @@ I specialize in high-stakes training modules, compliance, and social impact lear
 ## 📬 Collaborate with Me
 - 🌐 [View Full Portfolio](https://skibaara.github.io/portfolio/)
 - 📧 [Email Me](mailto:hello@skibaara.com)
-- 💼 [LinkedIn](https://linkedin.com/in/skibaara) (Add your link here)
+- 💼 [LinkedIn](https://www.linkedin.com/in/stephanie-k-54853078/)) 
 ---
 <p align="center">
   <i>"Architecture is not just about buildings; it's about how people move through and learn within spaces—digital or physical."</i>
